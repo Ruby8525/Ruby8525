@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ruby8525
 - 👀 I’m interested in lots of roblox games
 - 🌱 I’m currently learning sign language
-- 💞️ I’m looking to collaborate on math
+- 💞️ I’m looking to collaborate on IDK
 - 📫 How to reach me youtube
 - 😄 Pronouns: she\her
 - ⚡ Fun fact: I have a rock song named after me
